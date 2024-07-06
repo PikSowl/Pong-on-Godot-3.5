@@ -1,1 +1,1 @@
-Download Win instal to run game locally
+Download win instal to run game locally
